@@ -3,7 +3,7 @@
 </p>
 
  <p align="center">  ─── ⋆⋅☆⋅⋆ ──
-<p align="center"> ''𝙳𝚎𝚝𝚎𝚌𝚝𝚒𝚟𝚎''
+<p align="center"> ''𝙳𝚎𝚝𝚎𝚌𝚝𝚒𝚟𝚎--''
 
  <p align="center"> 
 
