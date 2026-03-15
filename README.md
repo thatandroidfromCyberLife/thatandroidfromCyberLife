@@ -1,8 +1,6 @@
-<p align="center"> ─── ⋆⋅☆⋅⋆ ──
+<p align="center"> <img src="https://i.pinimg.com/originals/c0/2c/81/c02c812cd6b50dc463019744420a182a.gif" alt="M" width="365" height="225">
+ ─── ⋆⋅☆⋅⋆ ──
 <p align="center"> ''𝙳𝚎𝚝𝚎𝚌𝚝𝚒𝚟𝚎''
-
- <p align="center"> <img src="https://i.pinimg.com/originals/c0/2c/81/c02c812cd6b50dc463019744420a182a.gif" alt="M" width="365" height="225">
-
 
  <p align="center"> 
 
