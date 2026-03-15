@@ -1,4 +1,5 @@
 <p align="center"> ─── ⋆⋅☆⋅⋆ ──
 <p align="center"> det Ronny
-<p align="center"> https://i.pinimg.com/1200x/fd/ca/7e/fdca7e44b67ef83bdf04c21dc8607f55.jpg
+<p align="center"> 
+https://i.pinimg.com/originals/43/6e/f7/436ef73108aa8c9d58c7df933b59404a.gif
 
