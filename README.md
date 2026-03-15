@@ -1,6 +1,4 @@
-<p align="center"> <img src="image-removebg-preview" alt="M" width="365" height="225">
-
- ─── ⋆⋅☆⋅⋆ ──
+ <p align="center">  ─── ⋆⋅☆⋅⋆ ──
 <p align="center"> ''𝙳𝚎𝚝𝚎𝚌𝚝𝚒𝚟𝚎''
 
  <p align="center"> 
