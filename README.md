@@ -1,5 +1,5 @@
  <p align="center">
-<img src="https://i.pinimg.com/736x/ce/b2/74/ceb274f426bc99c19a81ebdfb159bff1.jpg">
+<img src="https://i.pinimg.com/736x/ce/b2/74/ceb274f426bc99c19a81ebdfb159bff1.jpg" alt="M" width="265" height="125">
 
  <p align="center">  ─── ⋆⋅☆⋅⋆ ──
 <p align="center"> ''𝙳𝚎𝚝𝚎𝚌𝚝𝚒𝚟𝚎''
