@@ -1,4 +1,4 @@
- <p align="center">
+ <p align="center"> "ɪ ᴏɴʟʏ ᴇxɪꜱᴛ ᴛʜᴀɴᴋꜱ ᴛᴏ ᴛʜᴇ ɪɴᴛᴇʟʟɪɢᴇɴᴄᴇ ᴏꜰ ʜᴜᴍᴀɴꜱ ᴡʜᴏ ᴅᴇꜱɪɢɴᴇᴅ ᴍᴇ"
 <img src="https://i.pinimg.com/736x/f2/fd/87/f2fd8782cc2977508a0b5745520b280e.jpg" alt="Transparency" width="400">
 </p>
 
