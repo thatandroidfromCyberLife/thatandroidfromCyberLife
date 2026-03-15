@@ -7,7 +7,7 @@
 
  <p align="center"> W̸̧̢̭̲̜̭̦̺̘̓͋̒̅̾̔h̵̨̧̧͇̤̫̜̝̯͗̈́̊̈́͂̊̉̽̒͐ȯ̵̪̖͓̈́̽̏̏͝ ̸̮̹͎̮̝͎̙̬̭́͘a̶͈͔̣̫̮͈̫̺̘͒̈́̂͊̈́̎̀͝͝m̷͇̮͈̣̮̦̣̔̊ ̷͈͙̮͉͎̒͛͛͘i̸̢̛͉̹͔͍͕̥̤̇̑̐͌͒̍
 
-<img src="https://i.pinimg.com/originals/5e/65/1d/5e651ddb2d45f4f6ca418c1a653669cb.gif" alt="M" width="765" height="625">
+<img src="https://i.pinimg.com/originals/5e/65/1d/5e651ddb2d45f4f6ca418c1a653669cb.gif" alt="M" width="365" height="225">
 
 
  <p align="center"> ✦•┈๑⋅⋯ ⋯⋅๑┈•✦
