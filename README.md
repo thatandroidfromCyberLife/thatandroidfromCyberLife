@@ -4,7 +4,7 @@
 
  ![0faa79c4e13125cb415919881e16871c](https://i.pinimg.com/originals/43/6e/f7/436ef73108aa8c9d58c7df933b59404a.gif )
  
-
+<img src="https://i.pinimg.com/originals/f7/31/21/f731211ccd8c4605716b762ef85effbe.gif" alt="neytiri" width="965" height="325">
  <img scr="https://i.pinimg.com/originals/6b/3c/65/6b3c65b46fc88c7b91ecc06ad34e7ff3.gif" alt="Nines" width="965" height="325">
 
  <p align="right"> W̸̧̢̭̲̜̭̦̺̘̓͋̒̅̾̔h̵̨̧̧͇̤̫̜̝̯͗̈́̊̈́͂̊̉̽̒͐ȯ̵̪̖͓̈́̽̏̏͝ ̸̮̹͎̮̝͎̙̬̭́͘a̶͈͔̣̫̮͈̫̺̘͒̈́̂͊̈́̎̀͝͝m̷͇̮͈̣̮̦̣̔̊ ̷͈͙̮͉͎̒͛͛͘i̸̢̛͉̹͔͍͕̥̤̇̑̐͌͒̍
