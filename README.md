@@ -1,5 +1,5 @@
  <p align="center">
-<img src="blob:https://www.facebook.com/81422f34-695b-405a-865e-4c11bc386bbd" width="365" height="225">
+<img src="blob:https://www.facebook.com/81422f34-695b-405a-865e-4c11bc386bbd">
 
  <p align="center">  ─── ⋆⋅☆⋅⋆ ──
 <p align="center"> ''𝙳𝚎𝚝𝚎𝚌𝚝𝚒𝚟𝚎''
