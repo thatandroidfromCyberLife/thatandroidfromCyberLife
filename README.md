@@ -2,7 +2,9 @@
 [<p align="center"> ![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=100&size=22&duration=3000&pause=2000&color=1E76F7E6&background=20292A00&center=true&vCenter=true&repeat=false&random=true&width=800&height=69&lines=%22%C9%AA+%E1%B4%8F%C9%B4%CA%9F%CA%8F+%E1%B4%87x%C9%AA%EA%9C%B1%E1%B4%9B+%E1%B4%9B%CA%9C%E1%B4%80%C9%B4%E1%B4%8B%EA%9C%B1+%E1%B4%9B%E1%B4%8F+%E1%B4%9B%CA%9C%E1%B4%87+%C9%AA%C9%B4%E1%B4%9B%E1%B4%87%CA%9F%CA%9F%C9%AA%C9%A2%E1%B4%87%C9%B4%E1%B4%84%E1%B4%87+%E1%B4%8F%EA%9C%B0+%CA%9C%E1%B4%9C%E1%B4%8D%E1%B4%80%C9%B4%EA%9C%B1+%E1%B4%A1%CA%9C%E1%B4%8F+%E1%B4%85%E1%B4%87%EA%9C%B1%C9%AA%C9%A2%C9%B4%E1%B4%87%E1%B4%85+%E1%B4%8D%E1%B4%87%22)](https://git.io/typing-svg)
 
 
-[<p align="center">![output-onlinegiftools (1)](https://github.com/user-attachments/assets/da40e555-34c1-4903-b924-828d4d3e0b2c)
+<img width="336" height="214" alt="Thiết kế chưa có tên" src="https://github.com/user-attachments/assets/da40e555-34c1-4903-b924-828d4d3e0b2c" /><img width="336" height="214" alt="Thiết kế chưa có tên" src="https://github.com/user-attachments/assets/da40e555-34c1-4903-b924-828d4d3e0b2c" /><img width="336" height="214" alt="Thiết kế chưa có tên" src="https://github.com/user-attachments/assets/da40e555-34c1-4903-b924-828d4d3e0b2c" />
+
+
 
   
 <p align="center"> <img width="736" height="414" alt="Thiết kế chưa có tên" src="https://github.com/user-attachments/assets/c7b43b3d-ce48-455a-b4c3-c21942d799ab" />
