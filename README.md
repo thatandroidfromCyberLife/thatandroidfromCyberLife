@@ -15,12 +15,4 @@
 
  <p align="center"> ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨\3
 
- <p align="center"><img width="267" height="374" alt="23005fd2b021284cae7ea5d033746492-removebg-preview" src="https://github.com/user-attachments/assets/328d5b16-28e1-4055-9e1b-8e6d868fd795" />
-
-
- <p align="center"><img width="566" height="375" alt="image-removebg-preview" src="https://github.com/user-attachments/assets/215b2960-1a88-46f8-a74f-fccee93fc841" />
-
-
- 
- <p align="center"><img src="https://i.pinimg.com/736x/ce/b2/74/ceb274f426bc99c19a81ebdfb159bff1.jpg" alt="M" width="199" height="230">
-
+ <p align="center"><img width="898" height="174" alt="d8d8b17a8e4775bfdb586e936e0f1736-removebg-preview-removebg-preview" src="https://github.com/user-attachments/assets/9fde3046-76cc-47f3-a5bc-699a6c107731" />
