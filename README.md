@@ -5,7 +5,7 @@
 <p align="center"><img width="90" height="90" alt="f7bad2700bc0c1168e40315156b043df-removebg-preview" src="https://github.com/user-attachments/assets/0ef02b95-4239-46d7-abea-62087c7f80e1" />
 
 
-<p align="center"> ˚₊‧・┆✦ʚ♡ɞ✦ ┆・₊˚
+<p align="center"> ❀•°•═════⋆.ೃ࿔*:･----------------˚₊‧・┆✦ʚ♡ɞ✦ ┆・₊˚----------------⋆.ೃ࿔*:･═════•°•❀
 <p align="left"><img width="236" height="236" alt="33d89e90bfa197379ffc91e884e92d68-removebg-preview" src="https://github.com/user-attachments/assets/aa85ec0b-2260-4cd3-b2d5-e837438d7584" />
 
 
