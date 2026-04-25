@@ -13,12 +13,8 @@
  <p align="center">  ─── ⋆⋅☆⋅⋆ ──
 <p align="center"> ''𝙳𝚎𝚝𝚎𝚌𝚝𝚒𝚟𝚎--''
 
-
- <p align="center"><img src="https://64.media.tumblr.com/47359337c9524e898954a42451976477/21a41128da2c407e-6e/s500x750/269de71c2d84d0cf34ff272d651d6398de5d409f.gif" alt="M" width="665" height="425">
-
- <p align="center"> ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨\3
-
 <p align="center"><img width="300" height="300" alt="308d3b21ff5f6e6dcaf009bfba220be6-removebg-preview" src="https://github.com/user-attachments/assets/3b42c3b1-6513-453b-aa72-672046dbaf8d" />
 
- 
+  <p align="center"> ﮩ٨ـﮩﮩ٨ـ♡ﮩ٨ـﮩﮩ٨\3
+
  <img width="898" height="174" alt="d8d8b17a8e4775bfdb586e936e0f1736-removebg-preview-removebg-preview" src="https://github.com/user-attachments/assets/9fde3046-76cc-47f3-a5bc-699a6c107731" />
